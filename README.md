@@ -1,0 +1,2 @@
+# FlexuToken
+FLEXU token community
